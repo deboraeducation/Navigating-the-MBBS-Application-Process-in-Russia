@@ -1,5 +1,6 @@
 # Navigating-the-MBBS-Application-Process-in-Russia
-Embarking on a medical education journey is a significant decision, and choosing Russia as your destination for pursuing an MBBS degree offers a range of benefits, from high-quality education to affordable tuition fees. However, navigating the application process can seem daunting, especially for international students. This guide will walk you through the step-by-step process of applying for an MBBS program in Russia, ensuring you have a clear understanding of what to expect and how to prepare.
+Embarking on a medical education journey is a significant decision, and <a href="https://deboraeducation.com/mbbs-in-russia/" target="_blank">choosing Russia</a>
+ as your destination for pursuing an MBBS degree offers a range of benefits, from high-quality education to affordable tuition fees. However, navigating the application process can seem daunting, especially for international students. This guide will walk you through the step-by-step process of applying for an MBBS program in Russia, ensuring you have a clear understanding of what to expect and how to prepare.
 
 1. Research and Choose the Right Medical University
 Researching Russian Medical Universities Before starting your application, it’s crucial to research and identify the medical universities in Russia that offer MBBS programs. Consider factors such as university rankings, course curriculum, faculty qualifications, language of instruction, and tuition fees. Some of the top medical universities in Russia include:
